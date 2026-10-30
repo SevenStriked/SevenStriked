@@ -11,4 +11,4 @@
 
  # IMPORTANT MESSAGE TO YOU ALL !! Please read it, it's VERY important ..
 
-## If I make a mistake, I befriended someone who's friends with a kidship, proship, darkship, etc. PLEASE CONTACT ME AND SHOW PROOFS AT ATABOOK. PLEASE DO NOT INCLUDE ME IN YOUR "DOC" OR "READ ME." I AM VERY UNCOMFORTABLE WITH IT. I REALLY HATE PROSHIPS, DARKSHIPS, KIDSHIPS, ETC. 
+## If I make a mistake like I befriended someone who's friends with a kidship, proship, darkship, etc. PLEASE CONTACT ME AND SHOW PROOFS AT ATABOOK. PLEASE DO NOT INCLUDE ME IN YOUR "DOC" OR "READ ME." I AM VERY UNCOMFORTABLE WITH IT. I REALLY HATE PROSHIPS, DARKSHIPS, KIDSHIPS, ETC. 
